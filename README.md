@@ -1,3 +1,3 @@
 # praktikum2
 
-Rizka Eka Fadila-6701184025
+Rizka Eka Fadila_6701184025_D3SI-42-04
